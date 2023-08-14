@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 <h1 align="center">Hi 👋, I'm Christopher Dombele</h1>
-<h3 align="center">A passionate frontend developer with a strong understanding in backend</h3>
+<h3 align="center">An enthusiastic front-end developer with a solid grasp of back-end technologies</h3>
 
 - 👨‍💻 All of my projects are available at [https://github.com/ChrisDombele](https://github.com/ChrisDombele)
 

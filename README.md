@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **chris.dombele135@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/christopherdombele/overlay/1635532794472/single-media-viewer?type=DOCUMENT&profileId=ACoAACTeyboBwuNEAp0qFM1FsYuDTr5oOABKvDE&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BsFnJ1tJrSgmTnUe29wTFcA%3D%3D](https://www.linkedin.com/in/christopherdombele/overlay/1635532794472/single-media-viewer?type=DOCUMENT&profileId=ACoAACTeyboBwuNEAp0qFM1FsYuDTr5oOABKvDE&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BsFnJ1tJrSgmTnUe29wTFcA%3D%3D)
+- 📄 Know about my experiences [https://www.linkedin.com/in/christopherdombele/?profileId=ACoAACTeyboBwuNEAp0qFM1FsYuDTr5oOABKvDE](https://www.linkedin.com/in/christopherdombele/?profileId=ACoAACTeyboBwuNEAp0qFM1FsYuDTr5oOABKvDE)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
